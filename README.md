@@ -1,5 +1,5 @@
-👋 Hi, I’m Megan
-- I'm a very creative person, looking to get my life easier with tech
+👋 Hi, I’m Megan 
+- I'm a very creative person, looking foward to get my life easier with tech
 - future IT
 - currently studying:
 
